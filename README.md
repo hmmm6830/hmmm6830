@@ -1,2 +1,2 @@
 # hmmm
-hi! I'm just a coder and a programmer lol.
+hi! idk what to add in here...
